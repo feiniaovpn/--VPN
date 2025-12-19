@@ -1,5 +1,5 @@
 # feiniao-vpn
-飞鸟VPN下载地址：https://vpnvpn.com
+飞鸟VPN下载地址：https://ui.vpnvpn.com
 注册即送免费时长，支持免费试用！
 
 高速、稳定、简单、安全 全球内容随心访问，无带宽或速度限制。 飞鸟VPN/首选！提供安全、稳定和快速的网络连接。
